@@ -1,2 +1,2 @@
 # share_link
-https://www.rootz.so/d/DqNQe
+1. 300302 為副總級使用 請改用300301
